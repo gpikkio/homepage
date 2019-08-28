@@ -1,7 +1,7 @@
 My personal homepage:
 
 https://gpikkio.github.io/homepage/
-https://giuseppecimo.cimo
+https://giuseppecimo.com
 
 
 Credit: Creative Common Forty by HTML5 UP html5up.net | @ajlkn
